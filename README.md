@@ -335,6 +335,7 @@ En donde el 1.8 K y los 1 K se encuentran en cortocircuito.
 
 <h2></b>4. VIDEO</b></h2>
 
+https://youtu.be/42c2okqpbZI
 
 <h2><b>5. CONCLUSIONES</b></h2> 
 
